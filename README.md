@@ -12,7 +12,7 @@ kauany.geraldi@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/ei
+![](https://media.tenor.com/Eibw8F4VJUkAAAA
 
 
 
